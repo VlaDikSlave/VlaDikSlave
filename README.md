@@ -1,5 +1,5 @@
 - 👋 Hi, I’m VlaDikSlave
-- 👀 I’m interested in yhthtrshgs
+- 👀 I’m interested in yhnbgferggv
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on ..hbgftrrefr
 - 📫 How to reach me kukuha)s
