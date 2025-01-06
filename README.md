@@ -1,7 +1,7 @@
 - 👋 Hi, I’m VlaDikSlave
 - 👀 I’m interested in yhnbgferggv
 - 🌱 I’m currently learning .
-- 💞️ I’m looking to collaborate on ..ythjtukiufmi
+- 💞️ I’m looking to collaborate on ..yikvhuhkfyvjk
 - 📫 How to reach me kukuha)s
 - 😄 Pronouns: ...
 - ⚡ Fun fact:ijdsm hgfjytdhtdrbgh
