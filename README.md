@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ..ftgvrwg
 - 📫 How to reach me kukuha)h
 - 😄 Pronouns: ...
-- ⚡ Fun fact:ijdsm hgfjytdhtdrbgh
+- ⚡ Fun fact:ijdsm jhguyj
 
 <!---
 VlaDikSlave/VlaDikSlave is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
